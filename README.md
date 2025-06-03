@@ -1,6 +1,6 @@
 <h2>厂长资源官网入口 - 超清视频站|下载|网页|打不开</h2>
 <p>厂长资源是一个综合性的影视资源平台，致力于为用户提供海量高清影视内容。它涵盖了电影、电视剧、综艺、动漫等多种类型的影视资源，无论是最新上映的大片还是经典老剧，都能在这里找到。厂长资源的最大亮点在于高清画质和快速流畅的播放体验，其影片资源的画质普遍达到超清1080P，部分资源甚至支持H264硬压4K。此外，厂长资源的界面设计简洁直观，操作方便，分类清晰，方便用户快速找到自己感兴趣的影视内容。平台还提供个性化推荐功能，根据用户的观影历史和兴趣偏好，为用户智能推荐适合自己的影视作品。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/5918.html" target="_blank"><strong>厂长资源最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://changzhangziyuan.wwwnav.com/" target="_blank"><strong>厂长资源最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
